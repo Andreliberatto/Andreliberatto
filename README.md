@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Andre Liberatto😁
+## Bem-vindo(a) 😁
 
  <div>
    <a href="https://github.com/Andreliberatto">
